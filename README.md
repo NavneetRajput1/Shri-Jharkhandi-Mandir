@@ -28,5 +28,5 @@ This is the official website for Shri Jharkhandi Mandir, a sacred temple known f
 
 For any queries, please contact:
 
-- Phone: +91 6393 131 608
+- Phone: +91 8650686696
 - Email: support@shrijharkhandimandir.org
